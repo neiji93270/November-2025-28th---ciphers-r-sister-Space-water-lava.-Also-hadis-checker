@@ -1,6 +1,6 @@
 # November-2025-28th---ciphers-r-sister-Space-water-lava.-
-What i fou'd  relu on quantum physics and not quantum computers. Take thé previous days readme files and this readme. Selam.
-take in mind that i waited tens years ro study imam azam and felt in trouble. i loved him.
+What i fou'd  relu on quantum physics and not quantum computers..
+
 at the moement, check those physics. i will complete it later.
 
 Based on anti hydrogen.... Dans mes blocs notes.
